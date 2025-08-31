@@ -4,7 +4,7 @@
 
 Sea of Thieves hacks are the ultimate way to control naval battles, loot faster, and outsmart rival crews. With ESP, aimbot, and wallhack at your fingertips, these cheat tools give you full awareness and deadly precision across the high seas.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Hacks-blueviolet)](https://sea-of-thieves-hacks.github.io/.github/)
 ---
 
 ## Product Description
